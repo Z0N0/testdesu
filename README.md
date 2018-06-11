@@ -1,6 +1,2 @@
 # testdesu
-kiksun 
-NeagariTatsuki  
-Z0N0  
-
-
+t-izw
